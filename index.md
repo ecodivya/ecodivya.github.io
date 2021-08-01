@@ -1,2 +1,2 @@
-Divya Choudhary
-Fond of **GOATS** (Alive)
+<o1>Divya Choudhary
+<li>Fond of **GOATS** (Alive)</li>
