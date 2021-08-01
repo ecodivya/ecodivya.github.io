@@ -1,2 +1,2 @@
-Welcome to my website
-"Divya Choudhary"
+Divya Choudhary
+Fond of GOATS (Alive)
