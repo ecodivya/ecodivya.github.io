@@ -1,2 +1,2 @@
 Welcome to my website
-title: "Divya Choudhary"
+"Divya Choudhary"
