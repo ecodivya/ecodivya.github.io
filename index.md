@@ -1,2 +1,2 @@
 Divya Choudhary
-Fond of GOATS (Alive)
+Fond of **GOATS** (Alive)
