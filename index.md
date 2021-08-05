@@ -5,14 +5,15 @@
 - 1997\. A great year!
   
 #### Morning walk!
-I love going
+<p>I love going
 for 
-morning walks.
-Sometimes,
+morning walks.<br>
+
+      Sometimes,
 I run too.
-I miss
+<p>I miss
 going to the 
-park.   
+park.<br>
     I am thinking of 
 running in a 
 marathon.
