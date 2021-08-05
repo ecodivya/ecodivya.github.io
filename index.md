@@ -29,9 +29,9 @@ marathon.</p>
 
 
 ## Mississippi Mud
-I terribly miss***mississippi mud*** ice cream.
-<p>I feel miserbale without***mississippi mud***. <br>
-  Why is***mississippi mud***so missable? </p>
+I terribly miss ***mississippi mud*** ice cream.
+<p>I feel miserbale without mississippi mud. <br>
+  Why is mississippi mud so missable? </p>
     
 
 
