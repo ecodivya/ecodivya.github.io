@@ -1,7 +1,7 @@
 # Divya Choudhary
 * I'm Fond of ***GOATS*** (Alive)
-* I love Oreo Milkshake
-* Sometimes I drink bitter gourd juice in the morning
+* I love **Oreo Milkshake**
+* Sometimes I drink **bitter gourd juice** in the morning
 - 1997\. A great year!
   
 #### Morning walk!
@@ -14,8 +14,8 @@ I miss
 going to the 
 park.   
     I am thinking of 
-    running in a 
-    marathon.
+running in a 
+marathon.
 
 
 I want a cute goat in my life, like this one:
