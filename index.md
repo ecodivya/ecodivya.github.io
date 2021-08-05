@@ -8,10 +8,9 @@
 <p>I love going
 for 
 morning walks.<br>
-
-      Sometimes,
-I run too.
-<p>I miss
+   Sometimes,
+I run too.<br>
+  I miss
 going to the 
 park.<br>
     I am thinking of 
@@ -20,4 +19,4 @@ marathon.
 
 
 I want a cute goat in my life, like this one:
-![Image of a **GOAT**](https://media.istockphoto.com/photos/animal-photos-picture-id834732994?k=6&m=834732994&s=612x612&w=0&h=06pjJwtABcoSl5U9jBhciMb2wX9kaqEV64Qkdbs7XNI=)
+![Image of a **GOAT**](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSaQZERwseI0OLdKp2O9-0a-giVu0hoa9usteZHoFBTvLOp9pNaloKhke8g2D1u515jxg4&usqp=CAU)
