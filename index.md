@@ -43,6 +43,6 @@ Sunday
 
 ## Go back to Saturday
 
-A calf's*bleating*sound, **me likey**
+A calf's *bleating*sound, **me likey**
 
-I want ***watermenlon iced tea***and some*cookies*
+I want ***watermenlon iced tea*** and some *cookies*
