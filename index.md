@@ -32,6 +32,7 @@ marathon.</p>
 I terribly miss ***mississippi mud*** ice cream.
 <p>I feel miserbale without mississippi mud. <br>
   Why is mississippi mud so missable? </p>
+  ![mississippi mud image](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQRMMnNlhP4BbDkDMWBNazDLEkCI4gbtjw1EA&usqp=CAU)
     
 Saturday
 ========
