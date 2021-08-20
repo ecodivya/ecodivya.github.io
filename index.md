@@ -47,3 +47,10 @@ Sunday
 A calf's *bleating*sound, **me likey**
 
 I want ***watermenlon iced tea*** and some *cookies*, ![watermelon iced tea image](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSbxbWL3IUYC_JYDqe9TqE9yJ_AZMaWFJV41Q&usqp=CAU)
+
+
+# Time
+
+                The way people talk
+about time is
+weird.
