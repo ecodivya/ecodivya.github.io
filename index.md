@@ -53,4 +53,22 @@ I want ***watermenlon iced tea*** and some *cookies*, ![watermelon iced tea imag
 
                 The way people talk
 about time is
-weird.
+weird. They keep saying that they
+don't have time and then they would
+ask
+me how do 
+I pass my time if I am
+not very active on 
+social media.
+Well I am highly active in my 
+real life,
+and if I get bored I just
+look around,
+listen to birds chirp,
+feel the blowing wind,
+observe people,
+look at the sky,
+look at the 
+tall palm tress
+and wonder.
+
